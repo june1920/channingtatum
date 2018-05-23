@@ -37,7 +37,7 @@ A list of names that Channing Tatum would probably answer to:
 * Charming Possum
 * Chunder Tantrum
 * Chigger Teetums
-
+* Khan Twirling
 
 
 ![Magic Mike](img/magic-mike.jpg)
